@@ -1,2 +1,5 @@
 # 4-Kings---Star-Music-Player
-4 Kings - Star Music Player
+HAYDEN M. NAVALTA
+JHERVENE OLASO
+JHON ANDREI OLORES 
+ZYREL JABAT
